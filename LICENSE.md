@@ -1,4 +1,4 @@
-
+Enhance your Golden Frog VyprVPN experience with Golden Frog VyprVPN professional Utility: IKEv2-support & multi-protocol-support, the #1 utility. Includes IKEv2-support and
 
 
 
